@@ -1,0 +1,2 @@
+# seotricks.github.io
+test
